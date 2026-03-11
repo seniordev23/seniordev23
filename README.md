@@ -35,7 +35,7 @@ Welcome to my GitHub profile! I'm **James Zhu**, a passionate and experienced **
 ---
 
 ### 📫 How to reach me:
-- Email: [james.zhu22@outlook.com](mailto:james.zhu22@outlook.com)
+- Email: [jameszhu567@gmail.com](mailto:jameszhu567@gmail.com)
 - Telegram: [@ai2022meta](https://t.me/ai2022meta)
 
 
